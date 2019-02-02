@@ -5,9 +5,9 @@
 * Credit to the team, rather than individual
 * Wholeness
 
-## Ministry of Memmes
+## Ministry of Memes
 
-Ori – Max, Tim, Martin, Jack, Ruth
+Ori – Ruth, Max, Tim, Martin, Jack, Phoebe
 
 Chat: [https://t.me/MinistryofMemes](https://t.me/MinistryofMemes)
 
